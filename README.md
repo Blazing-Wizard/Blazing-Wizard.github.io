@@ -1,0 +1,1 @@
+# Blazing-Wizard.github.io
